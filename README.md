@@ -7,6 +7,6 @@
 
   ## você pode entrar em contato comigo por aqui:
 
-   @rosa.lana@escola.pr.gov.br
+   rosa.lana@escola.pr.gov.br
 
 ![](![https://tenor.com/pt-BR/view/bumble-bee-sus-gif-8566306001639863160](https://media1.tenor.com/m/AL8oX8Ch-HsAAAAC/boog.gif)
